@@ -1,4 +1,4 @@
-# Chartruks GachaGaming Compendium
+# Gacha Gaming Compendium
 
 
 
